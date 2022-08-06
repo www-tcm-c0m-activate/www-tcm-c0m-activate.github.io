@@ -7,7 +7,7 @@ TCM **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)** essenti
 
 ## How to find code to activate TCM  ?
 
-_The only requirement to activate the TCM channel is to obtain the unique TCM activation code via the **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)** page. One needs to know that the TCM cóm activation code is a 5 digit code that needs to be entered on the official activation page of Watch TCM - **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)**._
+The only requirement to activate the TCM channel is to obtain the unique TCM activation code via the **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)** page. One needs to know that the TCM cóm activation code is a 5 digit code that needs to be entered on the official activation page of Watch TCM **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)**.
 
 * Activation steps will begin by navigating to the authorized website link (directed above).
 * On the main page, you have to select the platform for activation.
@@ -18,13 +18,13 @@ _The only requirement to activate the TCM channel is to obtain the unique TCM ac
 
 _Once the activation process is cómplete, you will be able to stream your favorite movies and shows from the network on multiple media devices. devices._
 
-## Enter Activation Code - **www.tcm.cóm/activate**
+## Enter Activation Code - **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)****
 
 Enter the code found on the activation screen on your device. Leave your device connected and on the activation code screen.
 
 Verification of your TV service provider is handled by your TV service provider. TCM does not access your user name, password, email address or any other information about your TV service provider account.
 
-## How to activate TCM at **www.tcm.cóm/activate**?
+## How to activate TCM at **[www.tcm.cóm/activate](https://www-tcm-c0m-activate.github.io/)**?
 
 * TCM is currently available on more than 150 platforms.
 * But before you can start streaming your favorite TV shows and content, you need to have the TCM app installed on your device first.
